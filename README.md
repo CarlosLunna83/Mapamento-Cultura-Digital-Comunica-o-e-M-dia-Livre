@@ -1,0 +1,1 @@
+Tabulação dos dados coletados no formulário de mapeamento e mobilização de entidades e coletivos culturais de base comunitária https://colaborativas.net/mapeamento/ com foco no mapeamento dos coletivos da cultura digital comunicação e mídia livre.
